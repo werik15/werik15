@@ -1,4 +1,4 @@
-### boas vindas ao meu perfil 💙
+### vindas ao meu perfil 💙
 
 meu nome é erik gabriel
 
