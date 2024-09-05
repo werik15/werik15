@@ -12,4 +12,5 @@ meu nome é erik gabriel
 
 - erik oses
 
-![](https://www.google.com/imgres?q=giff%20gta&imgurl=https%3A%2F%2Fi.gifer.com%2FRxtG.gif&imgrefurl=https%3A%2F%2Fgifer.com%2Fpt%2FRxtG&docid=o38HT4OAF1Mx4M&tbnid=q_kdIRxFBh-tgM&vet=12ahUKEwjW_4nBgqyIAxWDqZUCHaUcNfMQM3oECHAQAA..i&w=500&h=250&hcb=2&ved=2ahUKEwjW_4nBgqyIAxWDqZUCHaUcNfMQM3oECHAQAA)
+![](![image](https://github.com/user-attachments/assets/b1637f79-ac74-49b5-8a72-3254a544ce3b)
+)
