@@ -12,4 +12,4 @@ meu nome é erik gabriel
 
 - erik oses
 
-![](https://media.tenor.com/Du3ZrK0bApgAAAAM/luka-doncic-thumbs-up.gif)
+![](https://www.google.com/imgres?q=giff%20gta&imgurl=https%3A%2F%2Fi.gifer.com%2FRxtG.gif&imgrefurl=https%3A%2F%2Fgifer.com%2Fpt%2FRxtG&docid=o38HT4OAF1Mx4M&tbnid=q_kdIRxFBh-tgM&vet=12ahUKEwjW_4nBgqyIAxWDqZUCHaUcNfMQM3oECHAQAA..i&w=500&h=250&hcb=2&ved=2ahUKEwjW_4nBgqyIAxWDqZUCHaUcNfMQM3oECHAQAA)
